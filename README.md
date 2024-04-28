@@ -68,3 +68,21 @@ This policy is effective as of 2022-02-18
 **Contact Us**
 
 If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at justtouchinfo@gmail.com.
+
+
+
+
+Ben Mesut ŞAHİN 
+13 Kasım 1996 te fethiyede taşyaka mahallesinde dünyaya geldim.
+İlk ve ortaokulu Fethiye Cumhuriyet ilküğretim okulunda okudum. En sevdiğim öğretmenim Mustafa YÜKSEL ilkokulda sınıf hocamdı orta okula geçinçe dersimize girmemesine rağmen her zaman iletişimde olduğum bir üğretmenimdi bir dönem müdür yardımcılığıda yaptı.2002 de başladığım ilkokulu 2010 yılında bitirdim. 
+
+2010 yılında Ömer Özyer Öğretmen Anadolu lisesinde lise eğitimine başladım. Okul müdürümüz Faruk Duran hocamızdı. Okulda derslerde çok başarılı bir eğitim hayatım geçmedi. En sevdiğim dersler beden dersleriydi hemen hemen tüm spor takımlarında bulundum futbol takımının ve boks takımının kaptanlığını yaptım Muğlada liseler arası futbol ve boks şampiyonluklarımız var hüseyin ay hocamız beni çok severdi ve bana çok güvenirdi o yüzden bende onu hep idol olarak gördüm. Üniversite şeçimimi yaparkende bu konu etkili oldu ve Beden Eğitimi Öğretmenliği şeçimi yaptım. Öğretmen Anadolu lisesi okumamdan dolayı ek bir puan bize gelerek Muğla Sıtkı Koçman Üniversitesi Beden Eğitimi Öğretmenliğine başladım yıl 2014'tü. Lisede iken yazları yazları barlarda barboyluk yapmaya başladım. Zombie barda  16 yaşımda 2012 yılında barboy olarak başladım. 2 yıl barboy olarak zombie barda çalıştıktan sonra 6 yıl barmenlik yaptım işletme müdürü olarak çalıştım. Üniversite bitene kadar sadece yazları çalıştım yani 2018'e kadar sadece hafta sonları ve yoğun günlerde çalıştım 2018'de ise tam zamanlı çalışmaya başladım. Muğla Sıtkı Koçman ünversitesi Spor Bilimleri Fakületsine ana kampüste 2014 yılında başladım ve 2018 yılında bitirdim. Mansur Harmandar hocamız bizim okul bitene kadar rektörlüğümüzü yapmıştır.Dekanımız ise Özcan Saygın Hocamızdı.
+
+Kişişel özelliklerimin Yoğun tutkulu duygusal bir yapım vardır. Kız arkadaşım Şeyma önceleri müşterimdi sonra yakınlaşmalar sonucu 15 ekim 1998 doğumlu şuan Fethiye Devlet Hastanesinde pratisyen hekim olarak çalışıyor. İkimizde akrep burcuyuz. Mutlu ve güzel bir hayatımız var o üniversiteyi Hacettepe üniversitesinden 2023 yılında mezun oldu kuraya katıldı ve burayı kazandı aslen adıyamanlı ama fethiyede yaşıyordu ailesi ile birlikte. Liseyi fethiye belediye Fen lisesinde okudu. ilk okulu ise özel ata okullarında okudu. Babası Fethiyede otelcilik yapmaktadır.
+
+Annem ev hanımı kızlık soyadı Tursun ev hanımı 15 ağustos 1977 yılında İyidere Yaylacılar küyünde dünyaya geldi.
+Babamda İyidere Yaylacılar köyünde 1973 yılında  inşaatçı ve çiftçi Şahin ailesi memlekette büyük ve kalabalık ailedir.
+
+Akrep burcu erkeği; yoğun, tutkulu, duygusal, gizli, cinsel, şehvetli, derin, intikamcı, ihtiyatlı, sadık, gölgeli özelliklere sahiptir. Akrep burcu erkeği özellikleri akrep erkeklerinin biraz olumsuz bir itibarı vardır, ancak bir Akrep erkeğini sevecek çok şey vardır. İlk başta temkinli görünebilir, ancak güvenini kazandıktan sonra, onun tamamen farklı bir yanını göreceksiniz. Sadık, tutkulu, yaratıcı ve şaşırtıcı derecede romantik. Akrep erkekleri cinsel hayatına düşkündür. Tutku ararlar yoğun duygular arasında kaybolmak isterler.
+
+Akrep erkeğinin de kadını gibi güçlü sezgisi vardır. Bunun sayesinde partnerinin ne zaman kötü bir ruh halinde olduğu hemen anlar. Sizi neşelendirmek için ne yapması gerektiğini bilir.
