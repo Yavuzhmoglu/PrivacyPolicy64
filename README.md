@@ -83,6 +83,173 @@ Kişişel özelliklerimin Yoğun tutkulu duygusal bir yapım vardır. Kız arkad
 Annem ev hanımı kızlık soyadı Tursun ev hanımı 15 ağustos 1977 yılında İyidere Yaylacılar küyünde dünyaya geldi.
 Babamda İyidere Yaylacılar köyünde 1973 yılında  inşaatçı ve çiftçi Şahin ailesi memlekette büyük ve kalabalık ailedir.
 
-Akrep burcu erkeği; yoğun, tutkulu, duygusal, gizli, cinsel, şehvetli, derin, intikamcı, ihtiyatlı, sadık, gölgeli özelliklere sahiptir. Akrep burcu erkeği özellikleri akrep erkeklerinin biraz olumsuz bir itibarı vardır, ancak bir Akrep erkeğini sevecek çok şey vardır. İlk başta temkinli görünebilir, ancak güvenini kazandıktan sonra, onun tamamen farklı bir yanını göreceksiniz. Sadık, tutkulu, yaratıcı ve şaşırtıcı derecede romantik. Akrep erkekleri cinsel hayatına düşkündür. Tutku ararlar yoğun duygular arasında kaybolmak isterler.
 
+Fethiye 
+
+
+ Fethiye hakkında bazı güzel bilgiler:
+
+Doğal Güzellikleri: Fethiye, Türkiye'nin güneybatısında, muhteşem bir doğal güzelliklere sahip bir tatil beldesidir. Özellikle Likya Yolu gibi doğa yürüyüş rotalarıyla ünlüdür. Kelebekler Vadisi, Saklıkent Kanyonu ve Ölüdeniz gibi doğal harikalarıyla ziyaretçilerini büyüler.
+Ölüdeniz: Fethiye'nin en ünlü plajlarından biri olan Ölüdeniz, dünyanın en güzel kumsallarından biri olarak kabul edilir. Turkuaz rengi suyu ve etkileyici manzarasıyla ziyaretçilerine unutulmaz bir deneyim sunar. Ayrıca yamaç paraşütü yapmak isteyenler için de popüler bir noktadır.
+Tarihi ve Kültürel Zenginlikler: Fethiye, antik dönemlerden kalma tarihi kalıntılarla doludur. Tarihi yerler arasında Likya Kaya Mezarları, Tlos Antik Kenti, Kayaköy (Kaya Köyü) gibi önemli noktalar bulunur. Bu bölgeler, ziyaretçilere tarihi ve kültürel bir yolculuk yapma fırsatı sunar.
+Mavi Yolculuk: Fethiye, Ege Denizi'nin en popüler mavi yolculuk rotalarından biridir. Gulet adı verilen geleneksel ahşap tekneyle yapılan bu yolculuklar, mavi suları, bakir koyları ve gizli plajları keşfetmek için ideal bir yoldur.
+Lezzetli Mutfak: Fethiye, Ege mutfağının lezzetlerini sunan birçok restoran ve kafeyle doludur. Taze deniz ürünleri, zeytinyağlı yemekler ve yöresel tatlar, ziyaretçilere damak zevklerine hitap eden bir deneyim sunar.
+Aktiviteler: Fethiye, doğa sporları ve macera aktiviteleri için ideal bir yerdir. Dalış, yamaç paraşütü, trekking, jeep safari gibi birçok aktivite burada yapılabilir. Ayrıca çevredeki kanyonlarda rafting yapmak da popüler bir seçenektir.
+Yıl Boyu Ziyaret Edilebilirlik: Fethiye'nin Akdeniz iklimi, yıl boyunca ziyaret edilmesini mümkün kılar. Yaz aylarında plaj keyfi yapabilirken, ilkbahar ve sonbaharda doğa yürüyüşleri ve diğer aktiviteler için ideal bir zamandır. Ayrıca kış aylarında da sıcaklıkların yumuşak olması sebebiyle ziyaret edilebilir.
+Fethiye, doğal güzellikleri, tarihi zenginlikleri ve çeşitli aktiviteleriyle her yıl binlerce yerli ve yabancı turisti kendine çeker. Ziyaretçilere unutulmaz bir tatil deneyimi sunan bu şehir, Türkiye'nin turizm cennetlerinden biridir.
+
+
+Muğla Sıtkı Koçman Üniversitesi
+
+
+
+ Muğla Sıtkı Koçman Üniversitesi hakkında bazı bilgiler:
+
+Muğla Sıtkı Koçman Üniversitesi (MSKÜ), Muğla ilinde yer alan bir devlet üniversitesidir. 1992 yılında kurulmuş olup, adını ünlü Türk tarihçisi ve eğitimci Sıtkı Koçman'dan almıştır.
+Üniversite, Muğla'nın merkezinde yer almakla birlikte, il genelinde farklı kampüsleri ve birimleri bulunmaktadır. Farklı fakülteler, enstitüler, yüksekokullar ve meslek yüksekokulları bünyesinde eğitim vermektedir.
+MSKÜ'nün eğitim-öğretim faaliyetleri çeşitli disiplinlerde yürütülmektedir. Fen Edebiyat, Mühendislik, İktisadi ve İdari Bilimler, Eğitim, Sağlık Bilimleri, Güzel Sanatlar, Spor Bilimleri gibi farklı alanlarda lisans, yüksek lisans ve doktora programları bulunmaktadır.
+Üniversite, öğrencilerine modern eğitim olanakları sunmanın yanı sıra araştırma ve geliştirme faaliyetlerine de önem vermektedir. Bilimsel araştırmalar, projeler ve akademik yayınlar üniversitenin öncelikli hedefleri arasındadır.
+MSKÜ, ulusal ve uluslararası düzeyde çeşitli akademik işbirlikleri ve değişim programlarına katılmaktadır. Öğrenci ve akademisyen değişimleri, çift diploma programları ve ortak araştırma projeleri gibi faaliyetler üniversitenin uluslararası boyutta tanınırlığını artırmaktadır.
+Ayrıca üniversite, sosyal ve kültürel etkinliklere de önem vermektedir. Öğrenci kulüpleri, spor faaliyetleri, kültürel etkinlikler ve sanatsal aktiviteler üniversite yaşamının önemli bir parçasını oluşturmaktadır.
+MSKÜ, Muğla'nın eşsiz doğal güzellikleriyle çevrili bir ortamda yer almasıyla da bilinir. Öğrenciler, derslerin dışında doğa sporları yapma imkanına sahiptirler ve çevredeki plajlar, koylar ve doğa parklarına kolayca ulaşabilirler.
+Kısacası, Muğla Sıtkı Koçman Üniversitesi, eğitim kalitesi, çeşitli disiplinlerdeki akademik programları, araştırma olanakları ve sosyal etkinlikleriyle öne çıkan bir yüksek öğrenim kurumudur. Hem yerli hem de uluslararası öğrenciler için çekici bir eğitim ortamı sunmaktadır.
+
+İyidere 
+
+
+Rize ilinin İyidere ilçesi hakkında bazı bilgiler:
+
+İyidere, Karadeniz Bölgesi'nde yer alan Rize iline bağlı bir ilçedir. Doğusunda Rize merkez, batısında ise Pazar ilçesi bulunmaktadır. İlçe, Karadeniz kıyısında yer alır ve denizden yüksekliği oldukça düşüktür.
+
+**Coğrafi Özellikler:** İyidere, doğal güzellikleri ve yeşil doğasıyla dikkat çeken bir bölgedir. İlçe sınırları içinde Fırtına Deresi'nin oluşturduğu vadiler, yemyeşil ormanlar ve dağlar bulunur. Ayrıca İyidere, çay tarımıyla da ünlüdür. Çay bahçeleri, bölgenin karakteristik manzaralarından biridir.
+
+**Ekonomi:** İyidere ekonomisi, tarım ve hayvancılığa dayalıdır. Özellikle çay tarımı ve çay fabrikaları ilçenin en önemli geçim kaynaklarındandır. Ayrıca bölgede fındık yetiştiriciliği de yaygındır. Turizm, son yıllarda ilçenin ekonomisinde önemli bir yer edinmeye başlamıştır.
+
+**Kültürel Miras:** İyidere, zengin bir kültürel mirasa sahiptir. Geleneksel Karadeniz müziği, halk oyunları ve el sanatları ilçenin kültürel dokusunu oluşturur. Ayrıca yöresel lezzetler ve yemek kültürü de İyidere'nin önemli unsurlarındandır.
+
+**Doğal Güzellikler:** İyidere, doğal güzellikleriyle ünlüdür. Fırtına Deresi boyunca uzanan vadiler, suyun çağlayarak aktığı şelaleler ve yemyeşil ormanlar bölgenin en çekici yerlerindendir. Ayrıca ilçe sınırları içinde bulunan Zilkale ve Çat kalesi gibi tarihi yapılar da ziyaretçilerin ilgisini çeker.
+
+**Turizm:** Son yıllarda turizm potansiyelini artıran İyidere, özellikle doğa turizmi için önemli bir destinasyondur. Yürüyüş ve trekking rotaları, kamp alanları, doğa fotoğrafçılığı için ideal manzaralar sunar. Ayrıca bölgede konaklama tesisleri ve restoranlar bulunmaktadır.
+
+İyidere, doğal güzellikleri, zengin kültürel mirası ve misafirperver insanlarıyla ziyaretçilerini büyüleyen bir ilçedir. Karadeniz'in huzurlu atmosferini yaşamak ve doğanın tadını çıkarmak isteyenler için ideal bir destinasyondur.
+
+
+Hisarönü, Fethiye'nin merkezine yaklaşık olarak 7 kilometre uzaklıkta yer alan ve muhteşem doğal güzelliklere sahip bir bölgedir. Hem yerli hem de yabancı turistlerin sıklıkla ziyaret ettiği bir tatil beldesidir.
+
+**Doğal Güzellikler:** Hisarönü, eşsiz doğal güzelliklere sahip bir konuma sahiptir. Yemyeşil ormanlarla çevrili olan bölge, denizle iç içe bir tatil deneyimi sunar. Ayrıca yakınlarında bulunan Ölüdeniz, dünyaca ünlü plajlarından biridir ve muhteşem turkuaz renkli deniziyle ziyaretçilerini büyüler.
+**Aktiviteler:** Hisarönü, çeşitli aktiviteler sunan bir tatil beldesidir. Ölüdeniz'in mavi sularında yüzme, yamaç paraşütü yapma, su sporlarına katılma gibi deniz aktiviteleri oldukça popülerdir. Ayrıca bölgede trekking, at safari, jeep safari gibi doğa aktiviteleri de yapılmaktadır.
+**Gece Hayatı:** Hisarönü, hareketli bir gece hayatına sahiptir. Birbirinden şık restoranlar, barlar, publar ve gece kulüpleri gece geç saatlere kadar eğlence sunar. Canlı müzik performansları, dans gösterileri ve tematik partiler ile ziyaretçilere unutulmaz bir gece yaşatılır.
+**Alışveriş:** Hisarönü, çeşitli hediyelik eşya dükkanları, butikler ve pazarlarıyla alışveriş tutkunlarını cezbeder. Yerel el sanatları, geleneksel dokuma ürünleri, takılar ve tekstil ürünleri gibi çeşitli hediyelik eşyalar satın alınabilir.
+**Konaklama:** Hisarönü, çeşitli konaklama seçeneklerine sahiptir. Lüks oteller, butik oteller, pansiyonlar, apart oteller ve tatil köyleri gibi farklı konaklama tesisleri bulunur. Her bütçeye uygun konaklama imkanları sunar.
+Hisarönü, muhteşem doğal güzellikleri, zengin aktivite seçenekleri, canlı gece hayatı ve konaklama imkanlarıyla tatilciler için mükemmel bir destinasyondur. Hem dinlenmek hem de eğlenmek isteyen herkesi bekler.
+
+
+
+Barmenlik
+
+Tabii, işte en popüler 10 kokteylin adları ve kısa tarifleri:
+
+1. **Mojito**
+   - 6 cl beyaz rom
+   - 4 cl lime suyu
+   - 2 cl basit şurup
+   - 8-10 yaprak taze nane
+   - Soda
+   - Buz
+   - Bir miktar nane ve limon dilimi (süsleme için)
+
+2. **Margarita**
+   - 5 cl tequila
+   - 2 cl lime suyu
+   - 1 cl agave şurubu (veya triple sec likörü)
+   - Buz
+   - Tuz (kenar için)
+   - Bir miktar lime dilimi (süsleme için)
+
+3. **Cosmopolitan**
+   - 4 cl vodka
+   - 1.5 cl triple sec likörü
+   - 1.5 cl lime suyu
+   - 3 cl cranberry suyu
+   - Buz
+   - Bir miktar lime kabuğu (süsleme için)
+
+4. **Piña Colada**
+   - 6 cl beyaz rom
+   - 3 cl hindistancevizi kreması
+   - 3 cl krema
+   - 9 cl ananas suyu
+   - Buz
+   - Ananas dilimi ve maraschino kirazı (süsleme için)
+
+5. **Daiquiri**
+   - 6 cl beyaz rom
+   - 3 cl lime suyu
+   - 2 cl basit şurup
+   - Buz
+   - Lime dilimi (süsleme için)
+
+6. **Martini**
+   - 6 cl dry gin
+   - 1 cl kuru vermut
+   - Zeytin veya lime kabuğu (süsleme için)
+
+7. **Old Fashioned**
+   - 5 cl bourbon veya rye viski
+   - 1 şeker küpü
+   - 2-3 damla angostura bitters
+   - Bir miktar portakal ve viski vişnesi (süsleme için)
+
+8. **Mai Tai**
+   - 4 cl beyaz rom
+   - 2 cl koyu rom
+   - 1.5 cl lime suyu
+   - 1 cl koyu şurup
+   - 1 cl amaretto likörü
+   - Buz
+   - Taze nane ve ananas dilimi (süsleme için)
+
+9. **Negroni**
+   - 3 cl dry gin
+   - 3 cl kırmızı vermut
+   - 3 cl campari
+   - Buz
+   - Portakal dilimi (süsleme için)
+
+10. **Whiskey Sour**
+    - 6 cl bourbon viski
+    - 3 cl lime veya limon suyu
+    - 1.5 cl basit şurup
+    - Buz
+    - Portakal ve viski vişnesi (süsleme için)
+   
+
+Bloody Mary'nin klasik tarifi:
+
+Malzemeler:
+
+4 cl votka
+12 cl domates suyu
+1.5 cl limon suyu
+Birkaç damla worcestershire sosu
+Birkaç damla tabasco sosu (acı sos)
+Tuz ve karabiber
+Buz
+Bir dilim limon veya limon kabuğu (süsleme için)
+Birkaç dal taze kereviz sapı (süsleme için)
+
+
+Sex on the Beach'in klasik tarifi:
+
+Malzemeler:
+
+4 cl vodka
+2 cl şeftali likörü (genellikle peach schnapps olarak adlandırılır)
+4 cl portakal suyu
+4 cl karpuz suyu (veya kızılcık suyu)
+Buz
+Bir dilim limon veya portakal (süsleme için)
+Birkaç çilek dilimi (isteğe bağlı süsleme için)
+
+Akrep burcu erkeği; yoğun, tutkulu, duygusal, gizli, cinsel, şehvetli, derin, intikamcı, ihtiyatlı, sadık, gölgeli özelliklere sahiptir. Akrep burcu erkeği özellikleri akrep erkeklerinin biraz olumsuz bir itibarı vardır, ancak bir Akrep erkeğini sevecek çok şey vardır. İlk başta temkinli görünebilir, ancak güvenini kazandıktan sonra, onun tamamen farklı bir yanını göreceksiniz. Sadık, tutkulu, yaratıcı ve şaşırtıcı derecede romantik. Akrep erkekleri cinsel hayatına düşkündür. Tutku ararlar yoğun duygular arasında kaybolmak isterler.
 Akrep erkeğinin de kadını gibi güçlü sezgisi vardır. Bunun sayesinde partnerinin ne zaman kötü bir ruh halinde olduğu hemen anlar. Sizi neşelendirmek için ne yapması gerektiğini bilir.
